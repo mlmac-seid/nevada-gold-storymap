@@ -1,1 +1,1 @@
-(https://arcg.is/10qfmf)
+https://arcg.is/10qfmf
